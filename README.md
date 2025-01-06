@@ -29,4 +29,4 @@ Download from https://drive.google.com/drive/folders/1tVzRS6VKDvYr3ioXySsJEWwPmn
 
 <img width="1325" alt="スクリーンショット 2025-01-07 0 10 33" src="https://github.com/user-attachments/assets/85bf1313-4f41-4e71-bab8-b8f6e508df2c" />
 <img width="1332" alt="スクリーンショット 2025-01-07 0 11 26" src="https://github.com/user-attachments/assets/e8f22320-4397-4e45-969c-ecbc6bbdc504" />
-![Chika 2024-09-09 13 14 43](https://github.com/user-attachments/assets/a1a6e189-69d9-4676-acd2-344383e24a4a)
+![Chika 2024-09-09 13 14 43](https://github.com/user-attachments/assets/0092515b-082b-4306-8f93-78b94d8317e4)
